@@ -1,1 +1,0 @@
-https://chat.openai.com/share/f6980707-b0ec-4bf8-850b-2154bf369717
